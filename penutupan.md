@@ -1,0 +1,3 @@
+Setelah hari yang panjang, Si Kancil memutuskan untuk kembali ke rumah. Dalam perjalanan pulang, ia merenung tentang petualangan hari itu. Menyeberangi sungai, mendapatkan teman baru, dan belajar bahwa dengan sopan santun, kita bisa mendapatkan banyak hal tanpa harus curang. 
+
+“Hari ini sangat seru!” pikirnya sambil tersenyum puas. Si Kancil menyadari bahwa petualangan tidak selalu tentang kecerdikan, tapi juga tentang sikap baik kepada sesama.
