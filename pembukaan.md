@@ -1,0 +1,1 @@
+Di dalam sebuah hutan yang asri, tinggallah seekor Kancil yang terkenal cerdik dan pemberani. Kancil senang berkeliling hutan, mencari pengalaman baru dan bertemu dengan berbagai hewan. Ia sangat suka berpetualang. Dari sinilah petualangannya dimulai.
